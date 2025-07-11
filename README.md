@@ -1,6 +1,6 @@
 # This is just some croatian guy's GitHub account
 
-Genderfluid (He / She),
+Genderfluid (He / She / They),
 Omnisexual,
 Furry (Fox),
 Satanist (The Satanic Temple),
